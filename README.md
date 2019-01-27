@@ -1,0 +1,2 @@
+# tcuk.com.mx
+autodidacta
